@@ -25,3 +25,22 @@ Abraham told him, "If they do not hear the word of God in the Bible, they will n
 ### References
 
 Luke 16:19-31
+
+## Build Up Treasures in Heaven
+
+Do not accumulate earthly possessions, which can be destroyed by moths, rust, or stolen by thieves.
+
+Instead, focus on building up treasures in heaven, where nothing can destroy or take them away.
+
+Remember, wherever your treasure is, there your heart will also be.
+
+Sell your possessions and give the proceeds to the poor.
+
+By doing so, you'll have treasure in heaven.
+
+Then, come and follow me.
+
+### References
+
+* Matthew 6:19-21
+* Matthew 19:21
