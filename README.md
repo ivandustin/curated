@@ -97,3 +97,15 @@ References: Matthew 10:37-39, Luke 14:26-27
 Truly, Truly, I say to you, if anyone keeps my word, he shall never see death forever.
 
 Reference: John 8:51
+
+## Committing adultery
+
+You heard that it was said, "You shall not commit adultery."
+
+But I say to you that all who looks at a woman to lust at her has already committed adultery on her in his heart.
+
+Now if your right eye is causing you to sin, take it out, and throw it away from you. For it is profitable for you that one of the parts of your body be destroyed, and not your whole body be thrown into hell.
+
+And if your right hand is causing you to sin, cut it off, and throw it away from you. For it is profitable for you that one of the parts of your body be destroyed, and not your whole body go into hell.
+
+Reference: Matthew 5:27-30
