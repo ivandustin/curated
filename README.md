@@ -22,9 +22,7 @@ The rich man insisted, "No, Father Abraham, but if someone rises from the dead a
 
 Abraham told him, "If they do not hear the word of God in the Bible, they will not believe even if someone comes back from the dead."
 
-### References
-
-Luke 16:19-31
+References: Luke 16:19-31
 
 ## Build Up Treasures in Heaven
 
@@ -40,10 +38,7 @@ By doing so, you'll have treasure in heaven.
 
 Then, come and follow me.
 
-### References
-
-* Matthew 6:19-21
-* Matthew 19:21
+References: Matthew 6:19-21, Matthew 19:21
 
 ## If You Love Me
 
@@ -51,7 +46,4 @@ If you love me, you will keep my commands.
 
 This is my command: Love each other, exactly the way I love you.
 
-### References
-
-* John 14:15
-* John 15:12
+References: John 14:15, John 15:12
