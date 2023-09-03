@@ -229,3 +229,13 @@ Many will say to me on that day, "Lord, Lord, did we not prophesy in your name, 
 And then I will confess to them that, "I never knew you. Go away from me, you workers of lawlessness."
 
 Reference: Matthew 7:21-23
+
+## Let your light shine
+
+You are the light of the world.
+
+A city laid above a mountain cannot be hidden. Nor do they light a lamp and put it under a basket, but on the lampstand. And it gives light to all in the house.
+
+So let your light shine before the people so that they may see your good works, and glorify your Father who is in Heaven.
+
+Reference: Matthew 5:14-16
