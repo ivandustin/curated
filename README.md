@@ -91,3 +91,9 @@ If anyone comes to me and does not hate their own father and mother, wife and ch
 Whoever does not carry their own cross and follow me cannot be my disciple.
 
 References: Matthew 10:37-39, Luke 14:26-27
+
+## If you keep my word
+
+Truly, Truly, I say to you, if anyone keeps my word, he shall never see death forever.
+
+Reference: John 8:51
