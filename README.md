@@ -133,3 +133,13 @@ And if you greet your brothers, only, what more are you doing? Does not also the
 Therefore, be perfect, as your Father in Heaven is perfect.
 
 Reference: Matthew 5:43-48
+
+## The truth will set you free
+
+If you stay in my word, you are truly my disciples.
+
+And you will know the truth.
+
+And the truth will set you free.
+
+Reference: John 8:31-32
