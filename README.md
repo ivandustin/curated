@@ -239,3 +239,9 @@ A city laid above a mountain cannot be hidden. Nor do they light a lamp and put 
 So let your light shine before the people so that they may see your good works, and glorify your Father who is in Heaven.
 
 Reference: Matthew 5:14-16
+
+## Man does not live on bread alone
+
+Man does not live on bread alone, but on every word that goes out through the mouth of GOD.
+
+Reference: Matthew 4:4
