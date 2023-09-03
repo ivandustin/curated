@@ -167,3 +167,13 @@ Everyone who looks at the Son and believes in Him shall have eternal life.
 I will resurrect him on the last day.
 
 Reference: John 6:40
+
+## I am the bread of life
+
+I am the bread of life.
+
+He who comes to me will never be hungry.
+
+And he who believes in me will never, ever be thirsty.
+
+Reference: John 6:35
