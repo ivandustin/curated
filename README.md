@@ -157,3 +157,13 @@ But when you pray, go into your room, shut the door, and pray to your Father who
 And your Father, who sees in secret, will answer your prayers.
 
 Reference: Matthew 6:5-6
+
+## The will of my Father
+
+This is the will of my Father:
+
+Everyone who looks at the Son and believes in Him shall have eternal life.
+
+I will resurrect him on the last day.
+
+Reference: John 6:40
