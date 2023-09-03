@@ -143,3 +143,17 @@ And you will know the truth.
 And the truth will set you free.
 
 Reference: John 8:31-32
+
+## Pray in secret
+
+When you pray, you must not be like the hypocrites.
+
+Because they love to stand and pray in public places, so that they may be seen by others.
+
+Truly, I say to you, their prayers will not be heard.
+
+But when you pray, go into your room, shut the door, and pray to your Father who is in secret.
+
+And your Father, who sees in secret, will answer your prayers.
+
+Reference: Matthew 6:5-6
