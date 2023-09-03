@@ -205,3 +205,17 @@ Take my yoke upon you, and learn from me, because I am gentle and lowly in heart
 For my yoke is good, and my load is light.
 
 Reference: Matthew 11:28-30
+
+## Eat me
+
+Truly, truly, I say to you, if you do not eat the flesh of the Son of Man and drink His blood, you do not have life in yourselves.
+
+The one who eats my flesh and drinks my blood has eternal life, and I will resurrect him on the last day.
+
+For my flesh is true food, and my blood is true drink.
+
+The one who eats my flesh and drinks my blood stays in me and I in him.
+
+Just as the living Father sent me, and I live because of the Father. So is the one who eats me, and he will live because of me.
+
+Reference: John 6:53-57
