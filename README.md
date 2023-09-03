@@ -65,3 +65,11 @@ Do not be afraid, I have conquered the world.
 Go into all the world and share the good news with everyone.
 
 References: John 15:18-19, Matthew 5:44, John 16:33, Mark 16:15
+
+## Guard yourselves from greed
+
+Beware and guard yourselves from all greed.
+
+Because your life is not in the abundance of your possessions.
+
+Reference: Luke 12:15
