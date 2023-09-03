@@ -185,3 +185,13 @@ If you forgive people for their sins, your heavenly Father will also forgive you
 But if you do not forgive people for their sins, neither your Father will forgive your sins.
 
 Reference: Matthew 6:14-15
+
+## I am the vine
+
+I am the vine. You are the branches.
+
+He who stays in me and I in him, he is the one that bears much fruit.
+
+Because without me, you can do nothing.
+
+Reference: John 15:5
