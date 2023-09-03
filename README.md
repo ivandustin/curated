@@ -22,7 +22,7 @@ The rich man insisted, "No, Father Abraham, but if someone rises from the dead a
 
 Abraham told him, "If they do not hear the word of God in the Bible, they will not believe even if someone comes back from the dead."
 
-References: Luke 16:19-31
+Reference: Luke 16:19-31
 
 ## Build Up Treasures in Heaven
 
