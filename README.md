@@ -44,3 +44,14 @@ Then, come and follow me.
 
 * Matthew 6:19-21
 * Matthew 19:21
+
+## If You Love Me
+
+If you love me, you will keep my commands.
+
+This is my command: Love each other, exactly the way I love you.
+
+### References
+
+* John 14:15
+* John 15:12
