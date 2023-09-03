@@ -195,3 +195,13 @@ He who stays in me and I in him, he is the one that bears much fruit.
 Because without me, you can do nothing.
 
 Reference: John 15:5
+
+## I will give you rest
+
+Come to me all who are exhausted and overloaded, and I will give you rest.
+
+Take my yoke upon you, and learn from me, because I am gentle and lowly in heart, and you will find rest for your souls.
+
+For my yoke is good, and my load is light.
+
+Reference: Matthew 11:28-30
