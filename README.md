@@ -73,3 +73,21 @@ Beware and guard yourselves from all greed.
 Because your life is not in the abundance of your possessions.
 
 Reference: Luke 12:15
+
+## Love me more than others
+
+Whoever loves their father or mother more than me is not worthy of me.
+
+Whoever loves their son or daughter more than me is not worthy of me.
+
+Whoever does not take up their cross and follow me is not worthy of me.
+
+Whoever finds their life will lose it.
+
+Whoever loses their life for my sake will find it.
+
+If anyone comes to me and does not hate their own father and mother, wife and children, brothers and sisters—yes, even their own life—they cannot be my disciple.
+
+Whoever does not carry their own cross and follow me cannot be my disciple.
+
+References: Matthew 10:37-39, Luke 14:26-27
