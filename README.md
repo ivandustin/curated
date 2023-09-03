@@ -1,4 +1,4 @@
-## The Rich Man and Lazarus
+## The rich man and Lazarus
 
 There was a rich man who wore luxury clothes and had grand celebrations every day.
 
@@ -24,7 +24,7 @@ Abraham told him, "If they do not hear the word of God in the Bible, they will n
 
 Reference: Luke 16:19-31
 
-## Build Up Treasures in Heaven
+## Build up treasures in heaven
 
 Do not accumulate earthly possessions, which can be destroyed by moths, rust, or stolen by thieves.
 
@@ -40,10 +40,28 @@ Then, come and follow me.
 
 References: Matthew 6:19-21, Matthew 19:21
 
-## If You Love Me
+## If you love me
 
 If you love me, you will keep my commands.
 
 This is my command: Love each other, exactly the way I love you.
 
 References: John 14:15, John 15:12
+
+## If the world hates you
+
+Be aware that if the world hates you, it hated me first.
+
+If you were of the world, the world would love you as its own.
+
+But because you are not of the world, and I have chosen you out of it, that is why the world hates you.
+
+But love your enemies and pray for them.
+
+In the world, you will have trouble. But in me, you have peace.
+
+Do not be afraid, I have conquered the world.
+
+Go into all the world and share the good news with everyone.
+
+References: John 15:18-19, Matthew 5:44, John 16:33, Mark 16:15
