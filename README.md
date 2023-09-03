@@ -219,3 +219,13 @@ The one who eats my flesh and drinks my blood stays in me and I in him.
 Just as the living Father sent me, and I live because of the Father. So is the one who eats me, and he will live because of me.
 
 Reference: John 6:53-57
+
+## Workers of lawlessness
+
+Not everyone who is saying to me, "Lord, Lord," will enter into the Kingdom of Heaven, but the one who is doing the will of my Father, who is in Heaven.
+
+Many will say to me on that day, "Lord, Lord, did we not prophesy in your name, cast out demons in your name, and did many miracles in your name?"
+
+And then I will confess to them that, "I never knew you. Go away from me, you workers of lawlessness."
+
+Reference: Matthew 7:21-23
