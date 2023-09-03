@@ -109,3 +109,27 @@ Now if your right eye is causing you to sin, take it out, and throw it away from
 And if your right hand is causing you to sin, cut it off, and throw it away from you. For it is profitable for you that one of the parts of your body be destroyed, and not your whole body go into hell.
 
 Reference: Matthew 5:27-30
+
+## Love your enemies
+
+You heard that it was said, "Love your neighbor, and hate your enemy."
+
+But I say to you, love your enemies.
+
+Bless those who curse you.
+
+Do good to those who hate you.
+
+And pray for the sake of those who revile and persecute you.
+
+So that you may become sons of your Father, who is in Heaven.
+
+Because He causes His Sun to rise upon the evil and the good, and sends rain upon the righteous and the unjust.
+
+For if you love those who love you, what reward do you have? Does not also the tax collectors do the same?
+
+And if you greet your brothers, only, what more are you doing? Does not also the non-believers do the same?
+
+Therefore, be perfect, as your Father in Heaven is perfect.
+
+Reference: Matthew 5:43-48
