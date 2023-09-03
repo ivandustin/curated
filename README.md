@@ -177,3 +177,11 @@ He who comes to me will never be hungry.
 And he who believes in me will never, ever be thirsty.
 
 Reference: John 6:35
+
+## Forgive
+
+If you forgive people for their sins, your heavenly Father will also forgive you.
+
+But if you do not forgive people for their sins, neither your Father will forgive your sins.
+
+Reference: Matthew 6:14-15
