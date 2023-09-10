@@ -1,3 +1,11 @@
+## The hidden treasure
+
+The Kingdom of GOD is like a hidden treasure in a field that a man found.
+
+In his happiness, he hides it again and sells everything he owns and buys that field.
+
+Reference: Matthew 13:44
+
 ## The rich man and Lazarus
 
 There was a rich man who wore luxury clothes and had grand celebrations every day.
