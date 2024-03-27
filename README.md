@@ -1,3 +1,9 @@
+## Change your way
+
+If you do not change your way, you will die forever.
+
+Reference: Luke 13:3
+
 ## The hidden treasure
 
 The Kingdom of GOD is like a hidden treasure in a field that a man found.
